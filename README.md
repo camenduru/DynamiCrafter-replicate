@@ -2,7 +2,7 @@
 🔥 Please join our discord server https://discord.gg/k5BwmmvJJU <br />
 🥳 Please join my patreon community https://patreon.com/camenduru <br />
 
-## 🎪 Replicate
+## 🕸 Replicate
 
 https://replicate.com/camenduru/dynami-crafter
 
